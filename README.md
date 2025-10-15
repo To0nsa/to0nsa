@@ -4,6 +4,8 @@ I am a Game Developer with a strong Gameplay and Narrative Design background. I�
 
 ---
 
-[LinkedIn](https://www.linkedin.com/in/nicolas-louis-0b7699254/) · [YouTube](https://www.youtube.com/@toonsa204)
+Visit my [YouTube](https://www.youtube.com/@toonsa204) channel to get an overview of my work.
+
+You can also find me on [LinkedIn](https://www.linkedin.com/in/nicolas-louis-0b7699254/).
 
 📧 nicolas.lovis@hotmail.fr · 📍 Helsinki
